@@ -1,5 +1,3 @@
-Pedro Henrique Prado
-
 Estudante de Ciência de Dados (Estácio) • Foco em Análise de Dados e BI  
 Gravataí, RS
 
